@@ -6,7 +6,7 @@ I made this guide for my friends who are planning to visit Warsaw, Poland for fe
 
 - [Places to visit](#places-to-visit)
 - [Places to eat](#places-to-eat)
-- [What to pack](#what-to-pack)
+- [What to bring](#what-to-bring)
 
 <!-- tocstop -->
 
